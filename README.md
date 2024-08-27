@@ -1,5 +1,7 @@
-## Hi there 👋
 
+![1000002068](https://github.com/user-attachments/assets/a7d2ee59-fbab-4468-ac39-2d4ae1c9b0d1)
+
+*updating...*
 <!--
 **silverfoxsmaher/silverfoxsmaher** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
