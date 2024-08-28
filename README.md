@@ -1,6 +1,7 @@
 
 ![1000001920](https://github.com/user-attachments/assets/68d53103-feb0-4313-ba57-a22e640a2f2b)
 
+"Figure out what a 'silver fox' is and why everyone keeps calling me one."
 
 *updating...*
 <!--
