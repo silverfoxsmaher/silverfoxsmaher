@@ -7,6 +7,8 @@ https://vt.tiktok.com/ZS2hwK1fv/
 
 ### All 12 fingers at once.
 
+![1000002314](https://github.com/user-attachments/assets/f0ea4f0e-15d5-4cd5-9cec-96db82faa414)
+
 *updating...*
 <!--
 **silverfoxsmaher/silverfoxsmaher** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
