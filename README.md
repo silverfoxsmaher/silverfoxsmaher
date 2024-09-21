@@ -9,7 +9,6 @@ https://vt.tiktok.com/ZS2hwK1fv/
 
 ![1000002314](https://github.com/user-attachments/assets/f0ea4f0e-15d5-4cd5-9cec-96db82faa414)
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31plwzzgm7k5i2lauifcxgaa3ysy&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=true&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31plwzzgm7k5i2lauifcxgaa3ysy&redirect=true)
 
 *updating...*
 <!--
