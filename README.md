@@ -5,7 +5,7 @@
 
 https://vt.tiktok.com/ZS2hwK1fv/
 
-### All 12 fingers at once.
+### One sixer, please...
 
 ![1000002314](https://github.com/user-attachments/assets/f0ea4f0e-15d5-4cd5-9cec-96db82faa414)
 
