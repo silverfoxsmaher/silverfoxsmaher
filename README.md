@@ -1,7 +1,8 @@
 
-![Uploading 1000003237.png…]()
+![1000003237](https://github.com/user-attachments/assets/2704d15a-1e2c-4924-ac30-3f68fa70a858)
 
-# tax evasion gang
+
+## tax evasion gang
 
 https://vt.tiktok.com/ZS2hwK1fv/
 
