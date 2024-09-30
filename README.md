@@ -1,8 +1,6 @@
 
 ![1000003233](https://github.com/user-attachments/assets/77e58521-b0ad-465e-aba3-d41c226b1217)
-my vros 
-
-"Figure out what a 'silver fox' is and why everyone keeps calling me one."
+tax evasion gang
 
 https://vt.tiktok.com/ZS2hwK1fv/
 
